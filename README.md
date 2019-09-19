@@ -8,3 +8,7 @@ This software is available under GPL license.
 Author: Dimitrios Tramantzas
 Year: 2018
 License: GNU GENERAL PUBLIC LICENSE (GPL)
+
+
+
+i am not a lawer so i am afraid of public sorry for that :(
